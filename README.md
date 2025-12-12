@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-GAAL760521HDFRRS01
+GAAL760521HDFRRS01
